@@ -25,6 +25,8 @@
 
 * czerwiec 2022: Sąd decyduje aby nakaz zapłaty doręczył Witomirowi Badowskiemu komornik.
 
-* sierpień 2022: W bazie CEIDG pojawia się informacja że Witomir Badowski zawiesił prowadzenie działalności gospodarczej pod adresem, pod ktorym przez ostatnie kilka miesiecy skutecznie doreczane byly pisma przedprocesowe, natomiast nie bylo mozliwe dostarczenie korespondencji od Sadu i komornika.
+* sierpień 2022: W bazie CEIDG pojawia się informacja, że Witomir Badowski zawiesił prowadzenie działalności gospodarczej pod adresem, pod którym przez ostatnie kilka miesięcy skutecznie doręczane były pisma przedprocesowe, natomiast nie było możliwe dostarczenie korespondencji z Sadu.
 
-Ciag dalszy nastapi...
+* wrzesień 2022: Komornik informuje, że nie ustalił czy pod wskazanym adresem zamieszkuje Witomir Badowski.
+
+Ciąg dalszy nastąpi...
